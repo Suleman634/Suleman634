@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me suleman.hassen2023b@gmail.com
 - 😄 Pronouns: he-him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: My favorite TV show is Lost.
 
 <!---
 Suleman634/Suleman634 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
